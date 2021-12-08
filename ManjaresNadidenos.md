@@ -23,5 +23,8 @@
 3. Cocina a fuego mediano-alto hasta que la mezcla se espese un poco. Reduce a fuego lento y revuelve continuamente por 2 minutos hasta que se note más espeso (la mezcla se pondrá cremosa). Apaga el fuego y añade la vainilla y el ron.
 4.  Vierte la mezcla en el molde y deja enfriar. Refrigera al menos unas 8 horas o de un día para otro. A la hora de servir vierte el tembleque sobre un plato y espolvorea con la nuez moscada y canela en polvo.
 
+### Video:
+- https://www.youtube.com/watch?v=jsKdmhDgSpM
+
 #### Referencias:
 https://www.aarp.org/espanol/cocina/recetas/info-12-2013/tembleque-receta-rose-colon.html
