@@ -5,6 +5,9 @@
 
 # Manjares Navideños
 ## Temblueque
+  
+ </div>
+  
 ### Ingredientes:
 - **2** lates de **15** onzas de crema de coco
 - **3 3/4** tazas de leche entera o si prefieres, baja en grasa
